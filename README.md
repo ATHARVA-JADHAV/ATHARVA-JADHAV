@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @ATHARVA-JADHAV
-- 👀 I’m interested in CODING,GAMES
-- 🌱 I’m currently learning Blockchain/Web3.
+YO, I’m @ATHARVA-JADHAV
+Interested in CODING,GAMES
+Currently working as Roblox developer | Programmer.
   
 
 <!---
