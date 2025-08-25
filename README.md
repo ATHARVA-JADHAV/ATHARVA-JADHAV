@@ -1,7 +1,5 @@
 -YO, I’m @ATHARVA-JADHAV
-
 -Interested in CODING,GAMES
-
 -Currently working as Roblox developer | Programmer.
   
 
